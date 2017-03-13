@@ -29,9 +29,11 @@
 1. Preheat oven to 350 degrees. Prepare a 9 inch cake pan with a circle of parchment paper in the bottom and grease the sides.
 
 *Prepare the streusel*
+
 2. To prepare the streusel, add flour, brown sugar, cinnamon and butter to a medium sized bowl and mix together until crumbly (use pastry cutter or hands)
 
 *Prepare the batter*
+
 3. Beat sugar and butter in a large bowl until light in color and fluffy, 3-4 minutes.
 4. Add sour cream and milk and mix until well incorporated.
 5. Add egg and vanilla extract and mix until smooth (a little lumpy is OK)
@@ -39,15 +41,18 @@
 7. Add dry ingredients to batter and mix until smooth.
 
 *Assemble in the pan*
+
 8. Spread half of the cake batter into the bottom of the cake pan.
 9. Top batter with about half of the streusel mixture, then half of the blueberries. Batter will be very thick
 10. Spread remaining cake batter over streusel.
 11. Sprinkle remaining streusel and blueberries over the top of the cake batter.
 
 *Bake*
+
 12. Bake for 34-36 minutes, or until a toothpick inserted comes out with a few crumbs.
 13. Remove cake from oven ~~and allow to cool in the pan for about 20 minutes. Then remove to cooling rack to finish cooling~~ eat immediately.
 
 *Glaze*
+
 14. To make the glaze, combine powdered sugar and milk in a small bowl and whisk until smooth. You can always add a little more milk or sugar, if needed.
 15. Drizzle the glaze over the coffee cake and sprinkle a few more blueberries over top.
